@@ -1,7 +1,7 @@
 ![teorie_pytliku_b.jpg](teorie_pytliku_b.jpg)
 
 
-# Teorie Pytlíku, aneb jak něco může být stvořeno z ničeho :-)
+# Teorie Pytlíku, aneb jak něco může vzniknout z ničeho :-)
 
 
 Záznam konverzace s ChatGPT pořízený během vycházky se psem :-)
