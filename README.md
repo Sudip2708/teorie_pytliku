@@ -97,7 +97,7 @@ Jestli to takhle půjde dál, brzy se možná začne filosofie nazývat "teorie 
 
 ## Dotaz:
 
-Teorie pytlíků mě upřímně rozesmála, protože mi to přijde jak z hláška z Červeného trpaslíka, ale super a díky. Když je člověk retrospektivní, tak může i vnímat, že jeho mysl je jen souhrn různých výpočtů reagujících na okolní podměty a vnitřní uspořádání člověka. A člověk tím, že medituje, má schopnost vědomě se ztišit a zklidnit, a tím získává určitý nástroj, kterým může ovlivňovat to, jak se cítí. A poté má i možnost používat tuto schopnost, aby byl co nejvíce intuitivně napojen na tuto hlubší podstatu. Tím se zároveň stává jeho život snažím, což samo o sobě je i motivací pro to, to dělat.
+Teorie pytlíků mě upřímně rozesmála, protože mi to přijde jak z hláška z Červeného trpaslíka, ale super a díky. Když je člověk retrospektivní, tak může i vnímat, že jeho mysl je jen souhrn různých výpočtů reagujících na okolní podměty a vnitřní uspořádání člověka. A člověk tím, že medituje, má schopnost vědomě se ztišit a zklidnit, získává určitý nástroj, kterým může ovlivňovat to, jak se cítí. A tak má i možnost používat tuto schopnost, aby byl co nejvíce intuitivně napojen na tuto hlubší podstatu. Tím se zároveň stává jeho život snasším, což samo o sobě je i motivací pro to, aby to dělal.
 
 ## ChatGPT:
 
